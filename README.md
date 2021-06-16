@@ -1,2 +1,2 @@
 # NFTStoriescom
-Everyone has a story! What is yours?
+What is Your Story?
